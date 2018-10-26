@@ -41,7 +41,7 @@
 
 ## Other useful stuff 
 
-[Hamilton Native Outpost](https://www.hamiltonnativeoutpost.com/) - wildflowers and natives
+[Hamilton Native Outpost](https://www.hamiltonnativeoutpost.com/) - wildflowers and natives    
 [Edible Landscaping](https://ediblelandscaping.com/)
 
 
