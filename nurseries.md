@@ -1,6 +1,6 @@
 # Sources for Nursery Plants
 
-*Fruit trees, berry bushes, nut trees, other perennials*
+*Fruit trees, berry bushes, nut trees, edible landscaping, permaculture*
 
 ## More Conventional
 
@@ -34,10 +34,10 @@
 [Urban Homestead](http://oldvaapples.com/)    
 [Burnt Ridge Nursery](http://www.burntridgenursery.com)    
 [Forest Agriculture](https://www.forestag.com)    
-[Ancient Olive Trees](www.ancientolivetrees.com/)
-[England's](http://www.nuttrees.net/)
-[Forrest Keeling](https://www.fknursery.com/)
-[New Farm Supply](https://newfarmsupply.com/)
+[Ancient Olive Trees](www.ancientolivetrees.com/)    
+[England's](http://www.nuttrees.net/)     
+[Forrest Keeling](https://www.fknursery.com/)     
+[New Farm Supply](https://newfarmsupply.com/)     
 
 ## Other useful stuff 
 
