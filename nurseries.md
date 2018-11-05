@@ -43,7 +43,7 @@
 
 [Hamilton Native Outpost](https://www.hamiltonnativeoutpost.com/) - wildflowers and natives    
 [Edible Landscaping](https://ediblelandscaping.com/)
-
+[Useful Seeds](http://www.usefulseeds.com/) - perennial and other crazy veg from Australia
 
 ## See Also
 
