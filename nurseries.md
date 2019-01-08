@@ -17,6 +17,7 @@
 
 ## Heirloom-focused
 
+[Edible Acres](http://www.edibleacres.org/) - lots of permaculture stuff: wild licorice, turkish rocket, comfrey, nanking cherry, raspberry varieties, air potato, western sand cherry    
 [Ames Nursery](http://www.amesorchardandnursery.com/) (near us in the Ozarks)    
 [Trees of Antiquity](http://www.treesofantiquity.com/)     
 [Forgotten Fruits](http://forgottenfruits.co.nz/)     
