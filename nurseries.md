@@ -16,6 +16,9 @@
 [Grandpa's Orchard](http://www.grandpasorchard.com/)    
 
 ## Heirloom-focused
+- [Brambleberry Farm](https://www.brambleberryfarm.org/)
+- [Hidden Springs](http://www.hiddenspringsnursery.com/)
+- 
 
 [Edible Acres](http://www.edibleacres.org/) - lots of permaculture stuff: wild licorice, turkish rocket, comfrey, nanking cherry, raspberry varieties, air potato, western sand cherry    
 [Ames Nursery](http://www.amesorchardandnursery.com/) (near us in the Ozarks)    
