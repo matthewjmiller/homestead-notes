@@ -20,6 +20,7 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 - [Perennial Pleasures](http://perennialpleasures.net/) - groundnuts, Good King Henry, sunchoke, skirret
 - [Pinetree](https://www.superseeds.com/) - affordable all-around supplier
 - [Plant Delights](https://www.plantdelights.com/) - cacti, hibiscus
+- [Resilient Seeds](http://www.resilient-seeds.com) - limited selection, emphasis on storage crops, dry legumes, and grains
 - [Richters](https://www.richters.com/) - Egyptian walking onion, lots of basils, lovage, jujube, hops, goji, LARGE selection
 - [Sandhill Preservation Center](https://www.sandhillpreservation.com/beetberry) - salsify, beetberry, garden huckleberry, lentils, cucurbits, grains
 - [Seed Savers Exchange](http://www.seedsavers.org)
