@@ -2,7 +2,7 @@
 
 Sources for specialty seeds, especialy perennial vegetable seeds and plants, many drawn from Eric Toensmeier's *Perennial Vegetables.*
 
-- [Adaptive Seeds](https://www.adaptiveseeds.com/) - Tim Peters varieties, Black Salsify, salad burnet, sculpit, sorrel
+- [Adaptive Seeds](https://www.adaptiveseeds.com/) - Tim Peters varieties, Black Salsify, salad burnet, sculpit, sorrel, grains
 - [AgroHaitai](http://agrohaitai.com/) - Asian veg, bunching onion
 - [Baker Creek](http://www.rareseeds.com) - major heirloom seed supplier
 - [Edible Plant Project](http://edibleplantproject.org/) - arrowroot, chaya, chinquapin, lamb's quarters, sunchoke, lots of cool stuff
