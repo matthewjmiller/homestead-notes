@@ -29,6 +29,12 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 - [Terroir](https://underwoodgardens.com/) - agretti, edible crysanthemum, salad burnet, sculpit, rare herbs
 - [Tripple Brook](https://tripplebrookfarm.com/tbf/man/general/home.shtml) - perennial onions, ramps, fuki, ostrich fern, mayapple
 
+## Lists of other sources
+
+[Midwest sources](http://www.greatlakespermaculture.org/?page_id=11)
+
+[My mom's massive list](http://vomitingchicken.com/another-happy-list-genes-seed-catalog-list/)
+
 ## Directories
 
 Not seed sources, but groups of seed savers or links to suppliers. May be useful for very specific searches, wild relatives, etc.
