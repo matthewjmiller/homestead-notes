@@ -5,6 +5,7 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 - [Adaptive Seeds](https://www.adaptiveseeds.com/) - Tim Peters varieties, Black Salsify, salad burnet, sculpit, sorrel, grains
 - [AgroHaitai](http://agrohaitai.com/) - Asian veg, bunching onion
 - [Baker Creek](http://www.rareseeds.com) - major heirloom seed supplier
+- [Buffalo](https://www.thebuffaloseedcompany.com/) - new company in KC
 - [Edible Plant Project](http://edibleplantproject.org/) - arrowroot, chaya, chinquapin, lamb's quarters, sunchoke, lots of cool stuff
 - [Evergreen Seeds](http://evergreenseeds.com/) - Asian veg, perennial onions
 - [Fedco](https://www.fedcoseeds.com/) - runner beans, rice, sylvetta, sorrel, sea kale, claytonia, skullcap, scorzonera, skirret, many trees and edible landscaping plants, many conventional crops
