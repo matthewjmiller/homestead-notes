@@ -4,16 +4,17 @@
 
 ## More Conventional
 
-[Henry Fields](http://www.henryfields.com/)    
-[Stark Bros](http://www.starkbros.com/)    
-[Gurney's](http://www.gurneys.com/)    
-[TyTy](http://www.tytyga.com/default.asp)    
-[TN Nursery](http://www.tnnursery.net/)    
-[Willis Orchards](https://www.willisorchards.com/)    
-[Berries Unlimited](http://www.berriesunlimited.com/)    
-[Nature Hills](http://www.naturehills.com/)    
-[Jung](https://www.jungseed.com/)    
-[Grandpa's Orchard](http://www.grandpasorchard.com/)    
+- [Henry Fields](http://www.henryfields.com/)    
+- [Stark Bros](http://www.starkbros.com/)    
+- [Gurney's](http://www.gurneys.com/)    
+- [TyTy](http://www.tytyga.com/default.asp)    
+- [TN Nursery](http://www.tnnursery.net/)    
+- [Willis Orchards](https://www.willisorchards.com/)    
+- [Berries Unlimited](http://www.berriesunlimited.com/)    
+- [Nature Hills](http://www.naturehills.com/)    
+- [Jung](https://www.jungseed.com/)    
+- [Grandpa's Orchard](http://www.grandpasorchard.com/)    
+- [Chief River](https://www.chiefrivernursery.com/) - bulk material, spring shipping only     
 
 ## Heirloom-focused
 - [Brambleberry Farm](https://www.brambleberryfarm.org/)
