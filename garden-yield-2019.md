@@ -8,11 +8,13 @@
 
 ~3 bunches of arugula
 
+6 cabbages
+
 ## Roots
 
 2 bunches of radishes
 
-5 bunches of carrots
+6 bunches of carrots
 
 11 turnips
 
@@ -24,17 +26,17 @@
 
 3 cups black cherries
 
-24 shishito peppers
+37 shishito peppers
 
-1 lipstick-type pepper
+10 assorted other peppers
 
-1 pint cherry tomatoes
+4 pints cherry tomatoes
 
-6 small tomatoes
+13 salad/paste tomatoes
 
-2 slicing tomatoes
+10 slicing tomatoes
 
-1 cup elderberries (foraged and grown)
+1.5 cup elderberries (foraged and grown)
 
 ## Herbs
 
@@ -44,7 +46,7 @@
 
 2 bunches of dill
 
-4 bunches of basil
+5 bunches of basil
 
 ## Seeds
 
