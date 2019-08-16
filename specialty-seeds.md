@@ -25,6 +25,7 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 - [Richters](https://www.richters.com/) - Egyptian walking onion, lots of basils, lovage, jujube, hops, goji, LARGE selection
 - [Sandhill Preservation Center](https://www.sandhillpreservation.com/beetberry) - salsify, beetberry, garden huckleberry, lentils, cucurbits, grains
 - [Seed Savers Exchange](http://www.seedsavers.org)
+- [Seeds from Italy](https://www.growitalian.com/)
 - [Southern Exposure](http://www.southernexposure.com/)
 - [Sundial Seeds](https://www.sundialseed.com/) - purple tree collards
 - [Terroir](https://underwoodgardens.com/) - agretti, edible crysanthemum, salad burnet, sculpit, rare herbs
@@ -32,6 +33,8 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 - [Nature & Nurture](https://natureandnurtureseeds.com/)
 
 ## Lists of other sources
+
+[Ozarks sources](https://showmeoz.wordpress.com/heirloom-seed-sources/)
 
 [Midwest sources](http://www.greatlakespermaculture.org/?page_id=11)
 
