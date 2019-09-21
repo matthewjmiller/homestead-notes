@@ -4,12 +4,14 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 
 - [Adaptive Seeds](https://www.adaptiveseeds.com/) - Tim Peters varieties, Black Salsify, salad burnet, sculpit, sorrel, grains
 - [AgroHaitai](http://agrohaitai.com/) - Asian veg, bunching onion
+- [Alplains](http://www.alplains.com/) - natives
 - [Baker Creek](http://www.rareseeds.com) - major heirloom seed supplier
 - [Buffalo](https://www.thebuffaloseedcompany.com/) - new company in KC
 - [Edible Plant Project](http://edibleplantproject.org/) - arrowroot, chaya, chinquapin, lamb's quarters, sunchoke, lots of cool stuff
 - [Evergreen Seeds](http://evergreenseeds.com/) - Asian veg, perennial onions
 - [Fedco](https://www.fedcoseeds.com/) - runner beans, rice, sylvetta, sorrel, sea kale, claytonia, skullcap, scorzonera, skirret, many trees and edible landscaping plants, many conventional crops
 - [Food Forest Farm](http://www.foodforestfarm.com/) - Chinese yam, ground bean, mint root, sorrel, comfrey, sea kale, ramps, Welsh onion
+- [Heritage Seed Market](https://heritageseedmarket.com/) - dwarf tomatoes
 - [J.L. Hudson](http://jlhudsonseeds.net/)
 - [Johnny's](https://www.johnnyseeds.com/)
 - [Kitazawa Seed](https://www.kitazawaseed.com/) - Asian veg
@@ -18,24 +20,32 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 - [Mountain Gardens](https://www.mountaingardensherbs.com/) - ramps, mallow, groundnut, Good King Henry, Giant Solomon's Seal, sunchoke, edible daylily, ostrich fern, bare root varieties available
 - [OAEC](https://oaec.org/) - groundnut, Good King Henry, tree collards, Turkish Rocket, lovage, goji, lots of mints/oreganos/sages 
 - [Oikos](https://oikostreecrops.com/) - groundnuts, nitrogen fixers, perennial bean, many sunchoke varieties, bunching onion, perennial potato, sorrel, perennial broccoli, tree collards, lots of wild stuff
+- [Peace Seedlings](http://peaceseedlingsseeds.blogspot.com/)
 - [Perennial Pleasures](http://perennialpleasures.net/) - groundnuts, Good King Henry, sunchoke, skirret
 - [Pinetree](https://www.superseeds.com/) - affordable all-around supplier
 - [Plant Delights](https://www.plantdelights.com/) - cacti, hibiscus
+- [Plant World](https://www.plant-world-seeds.com/) - UK source that ships here
+- [Prairie Moon](https://www.prairiemoon.com/) - natives
 - [Resilient Seeds](http://www.resilient-seeds.com) - limited selection, emphasis on storage crops, dry legumes, and grains
 - [Richters](https://www.richters.com/) - Egyptian walking onion, lots of basils, lovage, jujube, hops, goji, LARGE selection
 - [Sandhill Preservation Center](https://www.sandhillpreservation.com/beetberry) - salsify, beetberry, garden huckleberry, lentils, cucurbits, grains
 - [Seed Savers Exchange](http://www.seedsavers.org)
+- [Seeds from Italy](https://www.growitalian.com/)
+- [Select Seeds](https://www.selectseeds.com/)
 - [Southern Exposure](http://www.southernexposure.com/)
 - [Sundial Seeds](https://www.sundialseed.com/) - purple tree collards
 - [Terroir](https://underwoodgardens.com/) - agretti, edible crysanthemum, salad burnet, sculpit, rare herbs
 - [Tripple Brook](https://tripplebrookfarm.com/tbf/man/general/home.shtml) - perennial onions, ramps, fuki, ostrich fern, mayapple
+- [Turtle Tree](https://www.turtletreeseed.org/) - biodynamic seeds
 - [Nature & Nurture](https://natureandnurtureseeds.com/)
 
 ## Lists of other sources
 
-[Midwest sources](http://www.greatlakespermaculture.org/?page_id=11)
-
-[My mom's massive list](http://vomitingchicken.com/another-happy-list-genes-seed-catalog-list/)
+- [Ozarks sources](https://showmeoz.wordpress.com/heirloom-seed-sources/) - many highly specialized small places
+- [Midwest sources](http://www.greatlakespermaculture.org/?page_id=11)
+- [My mom's massive list](http://vomitingchicken.com/another-happy-list-genes-seed-catalog-list/)
+- [Margaret Roach seed series](https://awaytogarden.com/tag/seed-series/)
+- [And her resources list](https://awaytogarden.com/resources/)
 
 ## Directories
 
