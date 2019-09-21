@@ -22,13 +22,13 @@
 
 ~3 handfuls of strawberries
 
-10 cups of ground cherries
+12 cups of ground cherries
 
 3 cups black cherries
 
-65 shishito peppers
+87 shishito peppers
 
-22 assorted other peppers
+31 assorted other peppers
 
 17 pints cherry tomatoes
 
@@ -40,7 +40,11 @@
 
 2 aronia berries
 
-2 small cucumbers
+7 small cucumbers
+
+1 small watermelon
+
+2 small butternut squash
 
 ## Herbs
 
@@ -58,4 +62,4 @@
 
 1 bag of shelled peas
 
-9 cups of green beans
+12 cups of green beans
