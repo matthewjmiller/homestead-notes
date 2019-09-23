@@ -4,7 +4,7 @@
 
 ~13 salad mixes (lettuce, baby kale, baby chard, arugula, sorrel, radish)
 
-~13 bunches of kale and chard
+~15 bunches of kale and chard
 
 ~5 bunches of arugula
 
@@ -30,11 +30,11 @@
 
 31 assorted other peppers
 
-17 pints cherry tomatoes
+18 pints cherry tomatoes
 
 113 salad/paste tomatoes
 
-37 slicing tomatoes
+40 slicing tomatoes
 
 2 cups elderberries (foraged and grown)
 
@@ -45,6 +45,10 @@
 1 small watermelon
 
 2 small butternut squash
+
+7 passion fruit
+
+1 fig
 
 ## Herbs
 
