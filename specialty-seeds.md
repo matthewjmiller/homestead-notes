@@ -29,6 +29,7 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 - [Resilient Seeds](http://www.resilient-seeds.com) - limited selection, emphasis on storage crops, dry legumes, and grains
 - [Richters](https://www.richters.com/) - Egyptian walking onion, lots of basils, lovage, jujube, hops, goji, LARGE selection
 - [Sandhill Preservation Center](https://www.sandhillpreservation.com/beetberry) - salsify, beetberry, garden huckleberry, lentils, cucurbits, grains
+- [Sand Mountain Herbs](http://www.sandmountainherbs.com/index.html)
 - [Seed Savers Exchange](http://www.seedsavers.org)
 - [Seeds from Italy](https://www.growitalian.com/)
 - [Select Seeds](https://www.selectseeds.com/)
