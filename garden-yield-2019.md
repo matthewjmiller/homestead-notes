@@ -6,7 +6,7 @@
 
 ~15 bunches of kale and chard
 
-~5 bunches of arugula
+~8 bunches of arugula
 
 6 small cabbages
 
@@ -32,9 +32,9 @@
 
 18 pints cherry tomatoes
 
-117 salad/paste tomatoes
+120 salad/paste tomatoes
 
-42 slicing tomatoes
+44 slicing tomatoes
 
 2 cups elderberries (foraged and grown)
 
@@ -46,7 +46,7 @@
 
 2 small butternut squash
 
-7 passion fruit
+8 passion fruit
 
 1 fig
 
