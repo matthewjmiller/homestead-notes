@@ -26,15 +26,15 @@
 
 3 cups black cherries
 
-87 shishito peppers
+92 shishito peppers
 
-31 assorted other peppers
+37 assorted other peppers
 
-18 pints cherry tomatoes
+19 pints cherry tomatoes
 
-120 salad/paste tomatoes
+121 salad/paste tomatoes
 
-44 slicing tomatoes
+47 slicing tomatoes
 
 2 cups elderberries (foraged and grown)
 
@@ -66,4 +66,4 @@
 
 1 bag of shelled peas
 
-12 cups of green beans
+13 cups of green beans
