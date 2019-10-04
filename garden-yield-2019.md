@@ -30,11 +30,11 @@
 
 37 assorted other peppers
 
-20 pints cherry tomatoes
+21 pints cherry tomatoes
 
-129 salad/paste tomatoes
+130 salad/paste tomatoes
 
-49 slicing tomatoes
+51 slicing tomatoes
 
 2 cups elderberries (foraged and grown)
 
@@ -42,11 +42,11 @@
 
 7 small cucumbers
 
-1 small watermelon
+2 small watermelons
 
 2 small butternut squash
 
-8 passion fruit
+10 passion fruit
 
 1 fig
 
