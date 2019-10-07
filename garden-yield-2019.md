@@ -30,11 +30,11 @@
 
 37 assorted other peppers
 
-21 pints cherry tomatoes
+22 pints cherry tomatoes
 
-130 salad/paste tomatoes
+134 salad/paste tomatoes
 
-51 slicing tomatoes
+54 slicing tomatoes
 
 2 cups elderberries (foraged and grown)
 
