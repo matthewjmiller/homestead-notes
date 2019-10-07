@@ -6,8 +6,7 @@
 
 - [Henry Fields](http://www.henryfields.com/)    
 - [Stark Bros](http://www.starkbros.com/)    
-- [Gurney's](http://www.gurneys.com/)    
-- [TyTy](http://www.tytyga.com/default.asp)    
+- [Gurney's](http://www.gurneys.com/)     
 - [TN Nursery](http://www.tnnursery.net/)    
 - [Willis Orchards](https://www.willisorchards.com/)    
 - [Berries Unlimited](http://www.berriesunlimited.com/)    
