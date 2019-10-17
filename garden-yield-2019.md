@@ -32,15 +32,15 @@
 
 24 pints cherry tomatoes
 
-134 salad/paste tomatoes
+135 salad/paste tomatoes
 
-56 slicing tomatoes
+63 slicing tomatoes
 
 2 cups elderberries (foraged and grown)
 
 2 aronia berries
 
-7 small cucumbers
+10 small cucumbers
 
 2 small watermelons
 
