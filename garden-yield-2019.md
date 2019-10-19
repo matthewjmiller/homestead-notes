@@ -30,9 +30,9 @@
 
 37 assorted other peppers
 
-24 pints cherry tomatoes
+25 pints cherry tomatoes
 
-135 salad/paste tomatoes
+141 salad/paste tomatoes
 
 63 slicing tomatoes
 
