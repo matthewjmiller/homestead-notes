@@ -32,9 +32,9 @@
 
 25 pints cherry tomatoes
 
-146 salad/paste tomatoes
+156 salad/paste tomatoes
 
-67 slicing tomatoes
+69 slicing tomatoes
 
 2 cups elderberries (foraged and grown)
 
