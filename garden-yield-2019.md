@@ -32,9 +32,9 @@
 
 25 pints cherry tomatoes
 
-156 salad/paste tomatoes
+166 salad/paste tomatoes
 
-69 slicing tomatoes
+80 slicing tomatoes
 
 2 cups elderberries (foraged and grown)
 
@@ -46,7 +46,7 @@
 
 2 small butternut squash
 
-10 passion fruit
+50 passion fruit
 
 1 fig
 
