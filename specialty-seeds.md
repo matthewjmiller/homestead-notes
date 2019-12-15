@@ -42,6 +42,7 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 
 ## Lists of other sources
 
+- [Eric Toensmeier's list of perennial vegetable sources](https://www.chelseagreen.com/2008/rare-and-hard-to-find-perennial-seed-sources/)
 - [Ozarks sources](https://showmeoz.wordpress.com/heirloom-seed-sources/) - many highly specialized small places
 - [Midwest sources](http://www.greatlakespermaculture.org/?page_id=11)
 - [My mom's massive list](http://vomitingchicken.com/another-happy-list-genes-seed-catalog-list/)
