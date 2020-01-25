@@ -8,6 +8,7 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 - [Baker Creek](http://www.rareseeds.com) - major heirloom seed supplier
 - [Buffalo](https://www.thebuffaloseedcompany.com/) - new company in KC
 - [Edible Plant Project](http://edibleplantproject.org/) - arrowroot, chaya, chinquapin, lamb's quarters, sunchoke, lots of cool stuff
+- [Experimental Farm Network](https://store.experimentalfarmnetwork.org/) - perennials, landraces,
 - [Evergreen Seeds](http://evergreenseeds.com/) - Asian veg, perennial onions
 - [Fedco](https://www.fedcoseeds.com/) - runner beans, rice, sylvetta, sorrel, sea kale, claytonia, skullcap, scorzonera, skirret, many trees and edible landscaping plants, many conventional crops
 - [Food Forest Farm](http://www.foodforestfarm.com/) - Chinese yam, ground bean, mint root, sorrel, comfrey, sea kale, ramps, Welsh onion
