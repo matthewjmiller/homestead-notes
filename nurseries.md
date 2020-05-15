@@ -10,6 +10,7 @@
 - [Forrest Keeling](https://www.fknursery.com/)   
 - [Edible Landscaping](https://ediblelandscaping.com/)    
 - [River Hills](https://www.riverhillsharvest.com/) - elderberry cuttings from Missouri in winter
+- [Ozark Mountain Jewel](https://ozarkmountainjewel.com/) - startup place near us
 
 ## Cost effective but still cool
 
