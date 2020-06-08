@@ -10,7 +10,8 @@
 - [Forrest Keeling](https://www.fknursery.com/)   
 - [Edible Landscaping](https://ediblelandscaping.com/)    
 - [River Hills](https://www.riverhillsharvest.com/) - elderberry cuttings from Missouri in winter
-- [Ozark Mountain Jewel](https://ozarkmountainjewel.com/) - startup place near us
+- [Ozark Mountain Jewel](https://ozarkmountainjewel.com/) - startup place near us    
+- [Ozark Soul](http://www.ozarksoul.com/) - natives, some fruit-bearing shrubs    
 
 ## Cost effective but still cool
 
@@ -43,7 +44,8 @@
 - [Rolling River](https://www.rollingrivernursery.com/index.php)
 - [Forestfarm at Pacifica](https://www.forestfarm.com/)
 - [Great Escape](https://greatescapefarms.com/)
-- [Trade Winds](http://www.tradewindsfruit.com/) - tropical stuff
+- [Trade Winds](http://www.tradewindsfruit.com/) - tropical stuff    
+- [Twisted Tree](https://www.twisted-tree.net/) - currant cuttings, etc.     
 
 ## More Conventional
 
