@@ -12,6 +12,8 @@
 - [River Hills](https://www.riverhillsharvest.com/) - elderberry cuttings from Missouri in winter
 - [Ozark Mountain Jewel](https://ozarkmountainjewel.com/) - startup place near us    
 - [Ozark Soul](http://www.ozarksoul.com/) - natives, some fruit-bearing shrubs    
+- [Berries Unlimited](http://www.berriesunlimited.com/)    
+- [Stark Bros](http://www.starkbros.com/)    
 
 ## Cost effective but still cool
 
@@ -22,7 +24,6 @@
 - [Brambleberry Farm](https://www.brambleberryfarm.org/)
 - [Peaceful Heritage](https://peacefulheritage.com/) - arugula tree!?   
 - [Trees of Antiquity](http://www.treesofantiquity.com/)     
-- [Forgotten Fruits](http://forgottenfruits.co.nz/)     
 - [L.E. Cooke](http://www.lecooke.com/cms/home.html)    
 - [Seeds of Change](http://www.seedsofchange.com/home.aspx)    
 - [Walden Heights](http://waldenheightsnursery.com/)    
@@ -34,38 +35,42 @@
 - [Felix Gillet](http://felixgillet.org/)    
 - [Century Farm](http://centuryfarmorchards.com/)    
 - [Urban Homestead](http://oldvaapples.com/)    
-- [Forest Agriculture](https://www.forestag.com)    
+- [Forest Agriculture](https://www.forestag.com) - Mark Shepard    
 - [Ancient Olive Trees](https://www.ancientolivetrees.com/)      
-- [New Farm Supply](https://newfarmsupply.com/)     
-- [Big Horse Creek](http://bighorsecreekfarm.com/)    
+- [Big Horse Creek](http://bighorsecreekfarm.com/) - apple scionwood    
 - [Raintree](https://raintreenursery.com/)
-- [One Green World](https://onegreenworld.com/)
+- [One Green World](https://onegreenworld.com/) - very large selection    
 - [Just Fruits](https://justfruitsandexotics.com/)
 - [Rolling River](https://www.rollingrivernursery.com/index.php)
 - [Forestfarm at Pacifica](https://www.forestfarm.com/)
 - [Great Escape](https://greatescapefarms.com/)
 - [Trade Winds](http://www.tradewindsfruit.com/) - tropical stuff    
 - [Twisted Tree](https://www.twisted-tree.net/) - currant cuttings, etc.     
+- [Fedco](https://fedcoseeds.com/trees/)    
+- [Paradise Nursery](https://paradisenursery.com/) - Persian varieties    
+- [Boyer](https://www.boyernurseries.com/) - good for supplies    
+- [Ison's](https://www.isons.com/)    
+- [Greenmantle](http://greenmantlenursery.com/)    
+- [St. Lawrence](https://stlawrencenurseries.com/)    
 
 ## More Conventional
 
+- [Chief River](https://www.chiefrivernursery.com/) - bulk material, spring shipping only    
 - [Henry Fields](http://www.henryfields.com/)    
-- [Stark Bros](http://www.starkbros.com/)    
 - [Gurney's](http://www.gurneys.com/)     
 - [TN Nursery](http://www.tnnursery.net/)    
 - [Willis Orchards](https://www.willisorchards.com/)    
-- [Berries Unlimited](http://www.berriesunlimited.com/)    
 - [Nature Hills](http://www.naturehills.com/)    
 - [Jung](https://www.jungseed.com/)    
 - [Grandpa's Orchard](http://www.grandpasorchard.com/)    
-- [Chief River](https://www.chiefrivernursery.com/) - bulk material, spring shipping only    
 - [Greenwood](https://www.greenwoodnursery.com/)
 - [The Tree Store](http://thetreestore.info/)
 
 ## Other useful stuff 
 
 - [Hamilton Native Outpost](https://www.hamiltonnativeoutpost.com/) - wildflowers and natives    
-- [Useful Seeds](http://www.usefulseeds.com/) - perennial and other crazy veg from Australia
+- [Useful Seeds](http://www.usefulseeds.com/) - perennial and other crazy veg from Australia    
+- [New Farm Supply](https://newfarmsupply.com/)     
 
 ## See Also
 
