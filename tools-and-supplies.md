@@ -5,4 +5,5 @@
 - [Garden Tool Company](https://www.gardentoolcompany.com/)
 - [Gardener's Supply](https://www.gardeners.com/)
 - [Johnny's](https://www.johnnyseeds.com/)
+- [Lee Valley](https://www.leevalley.com/en-ca)
 - [Peaceful Valley](https://www.groworganic.com/)
