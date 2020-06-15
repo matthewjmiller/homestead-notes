@@ -40,6 +40,8 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 - [Tripple Brook](https://tripplebrookfarm.com/tbf/man/general/home.shtml) - perennial onions, ramps, fuki, ostrich fern, mayapple
 - [Turtle Tree](https://www.turtletreeseed.org/) - biodynamic seeds
 - [Nature & Nurture](https://natureandnurtureseeds.com/)
+- [Hamilton Native Outpost](https://www.hamiltonnativeoutpost.com/) - wildflowers and natives    
+- [Useful Seeds](http://www.usefulseeds.com/) - perennial and other crazy veg from Australia    
 
 ## Lists of other sources
 
