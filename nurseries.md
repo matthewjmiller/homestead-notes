@@ -52,6 +52,7 @@
 - [Ison's](https://www.isons.com/)    
 - [Greenmantle](http://greenmantlenursery.com/)    
 - [St. Lawrence](https://stlawrencenurseries.com/)    
+- [Morse](https://morsenursery.com/) - dwarf chestnuts
 
 ## More Conventional
 
@@ -64,13 +65,7 @@
 - [Jung](https://www.jungseed.com/)    
 - [Grandpa's Orchard](http://www.grandpasorchard.com/)    
 - [Greenwood](https://www.greenwoodnursery.com/)
-- [The Tree Store](http://thetreestore.info/)
-
-## Other useful stuff 
-
-- [Hamilton Native Outpost](https://www.hamiltonnativeoutpost.com/) - wildflowers and natives    
-- [Useful Seeds](http://www.usefulseeds.com/) - perennial and other crazy veg from Australia    
-- [New Farm Supply](https://newfarmsupply.com/)     
+- [The Tree Store](http://thetreestore.info/)    
 
 ## See Also
 
