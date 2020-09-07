@@ -8,7 +8,7 @@
 - [Hidden Springs](http://www.hiddenspringsnursery.com/)   
 - [England's](http://www.nuttrees.net/)     
 - [Forrest Keeling](https://www.fknursery.com/)   
-- [Edible Landscaping](https://ediblelandscaping.com/)    
+- [Edible Landscaping](https://ediblelandscaping.com/) - recommended    
 - [River Hills](https://www.riverhillsharvest.com/) - elderberry cuttings from Missouri in winter
 - [Ozark Mountain Jewel](https://ozarkmountainjewel.com/) - startup place near us    
 - [Ozark Soul](http://www.ozarksoul.com/) - natives, some fruit-bearing shrubs    
