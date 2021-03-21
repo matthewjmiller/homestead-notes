@@ -53,19 +53,14 @@
 - [Greenmantle](http://greenmantlenursery.com/)    
 - [St. Lawrence](https://stlawrencenurseries.com/)    
 - [Morse](https://morsenursery.com/) - dwarf chestnuts
+- [Red Ferm](http://www.redfernfarm.com/) - Iowa agroforestry
+- [Ave Maria Acres](https://www.avemariaacres.com/) - Nebraska
 
 ## More Conventional
 
 - [Chief River](https://www.chiefrivernursery.com/) - bulk material, spring shipping only    
-- [Henry Fields](http://www.henryfields.com/)    
 - [Gurney's](http://www.gurneys.com/)     
-- [TN Nursery](http://www.tnnursery.net/)    
-- [Willis Orchards](https://www.willisorchards.com/)    
-- [Nature Hills](http://www.naturehills.com/)    
-- [Jung](https://www.jungseed.com/)    
-- [Grandpa's Orchard](http://www.grandpasorchard.com/)    
-- [Greenwood](https://www.greenwoodnursery.com/)
-- [The Tree Store](http://thetreestore.info/)    
+
 
 ## See Also
 
