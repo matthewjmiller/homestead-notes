@@ -14,11 +14,15 @@
 - [Ozark Soul](http://www.ozarksoul.com/) - natives, some fruit-bearing shrubs    
 - [Berries Unlimited](http://www.berriesunlimited.com/)    
 - [Stark Bros](http://www.starkbros.com/)    
+- [Food Forest Nursery](https://foodforestnursery.com/)    
 
 ## Cost effective but still cool
 
 - [Edible Acres](http://www.edibleacres.org/) - lots of permaculture stuff: wild licorice, turkish rocket, comfrey, nanking cherry, raspberry varieties, air potato, western sand cherry   
 - [Burnt Ridge Nursery](http://www.burntridgenursery.com)    
+- [Perfect Circle](https://www.perfectcircle.farm/) - sells cuttings and propagation material    
+- [Twisted Tree](https://www.twisted-tree.net/) - currant cuttings, etc.     
+- [Future Forest Plants](https://www.futureforestplants.com/) - chestnuts, etc.
 
 ## Heirloom-focused
 - [Brambleberry Farm](https://www.brambleberryfarm.org/)
@@ -45,16 +49,17 @@
 - [Forestfarm at Pacifica](https://www.forestfarm.com/)
 - [Great Escape](https://greatescapefarms.com/)
 - [Trade Winds](http://www.tradewindsfruit.com/) - tropical stuff    
-- [Twisted Tree](https://www.twisted-tree.net/) - currant cuttings, etc.     
 - [Fedco](https://fedcoseeds.com/trees/)    
 - [Paradise Nursery](https://paradisenursery.com/) - Persian varieties    
 - [Boyer](https://www.boyernurseries.com/) - good for supplies    
 - [Ison's](https://www.isons.com/)    
 - [Greenmantle](http://greenmantlenursery.com/)    
 - [St. Lawrence](https://stlawrencenurseries.com/)    
-- [Morse](https://morsenursery.com/) - dwarf chestnuts
-- [Red Ferm](http://www.redfernfarm.com/) - Iowa agroforestry
-- [Ave Maria Acres](https://www.avemariaacres.com/) - Nebraska
+- [Morse](https://morsenursery.com/) - dwarf chestnuts    
+- [Red Fern](http://www.redfernfarm.com/) - Iowa agroforestry    
+- [Ave Maria Acres](https://www.avemariaacres.com/) - Nebraska    
+- [Fruitwood Nursery](https://fruitwoodnursery.com/)    
+- [Native Foods Nursery](https://nativefoodsnursery.com/)     
 
 ## More Conventional
 
