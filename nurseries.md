@@ -15,6 +15,7 @@
 - [Berries Unlimited](http://www.berriesunlimited.com/)    
 - [Stark Bros](http://www.starkbros.com/)    
 - [Food Forest Nursery](https://foodforestnursery.com/)    
+- [Red Fern](http://www.redfernfarm.com/) - Iowa agroforestry    
 
 ## Cost effective but still cool
 
@@ -31,7 +32,6 @@
 - [L.E. Cooke](http://www.lecooke.com/cms/home.html)    
 - [Seeds of Change](http://www.seedsofchange.com/home.aspx)    
 - [Walden Heights](http://waldenheightsnursery.com/)    
-- [Oikos Tree Crops](http://oikostreecrops.com/)    
 - [Maple Valley](http://maplevalleyorchards.com/Pages/Home.aspx)    
 - [Masonville](http://www.masonvilleorchard.com/scionwood.htm)    
 - [Backyard Berry Plants](http://backyardberryplants.com/index.htm)    
@@ -56,7 +56,6 @@
 - [Greenmantle](http://greenmantlenursery.com/)    
 - [St. Lawrence](https://stlawrencenurseries.com/)    
 - [Morse](https://morsenursery.com/) - dwarf chestnuts    
-- [Red Fern](http://www.redfernfarm.com/) - Iowa agroforestry    
 - [Ave Maria Acres](https://www.avemariaacres.com/) - Nebraska    
 - [Fruitwood Nursery](https://fruitwoodnursery.com/)    
 - [Native Foods Nursery](https://nativefoodsnursery.com/)     
