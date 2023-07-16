@@ -4,9 +4,9 @@
 
 ~13 salad mixes (lettuce, baby kale, baby chard, arugula, sorrel, radish)
 
-~15 bunches of kale and chard
+~17 bunches of kale and chard
 
-~8 bunches of arugula
+~9 bunches of arugula
 
 6 small cabbages
 
@@ -26,27 +26,27 @@
 
 3 cups black cherries
 
-92 shishito peppers
+110 shishito peppers
 
-37 assorted other peppers
+50 assorted other peppers
 
-22 pints cherry tomatoes
+25 pints cherry tomatoes
 
-134 salad/paste tomatoes
+166 salad/paste tomatoes
 
-54 slicing tomatoes
+80 slicing tomatoes
 
 2 cups elderberries (foraged and grown)
 
 2 aronia berries
 
-7 small cucumbers
+10 small cucumbers
 
 2 small watermelons
 
 2 small butternut squash
 
-10 passion fruit
+50 passion fruit
 
 1 fig
 

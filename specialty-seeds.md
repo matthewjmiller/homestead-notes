@@ -8,6 +8,7 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 - [Baker Creek](http://www.rareseeds.com) - major heirloom seed supplier
 - [Buffalo](https://www.thebuffaloseedcompany.com/) - new company in KC
 - [Edible Plant Project](http://edibleplantproject.org/) - arrowroot, chaya, chinquapin, lamb's quarters, sunchoke, lots of cool stuff
+- [Experimental Farm Network](https://store.experimentalfarmnetwork.org/) - perennials, landraces,
 - [Evergreen Seeds](http://evergreenseeds.com/) - Asian veg, perennial onions
 - [Fedco](https://www.fedcoseeds.com/) - runner beans, rice, sylvetta, sorrel, sea kale, claytonia, skullcap, scorzonera, skirret, many trees and edible landscaping plants, many conventional crops
 - [Food Forest Farm](http://www.foodforestfarm.com/) - Chinese yam, ground bean, mint root, sorrel, comfrey, sea kale, ramps, Welsh onion
@@ -25,6 +26,7 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 - [Pinetree](https://www.superseeds.com/) - affordable all-around supplier
 - [Plant Delights](https://www.plantdelights.com/) - cacti, hibiscus
 - [Plant World](https://www.plant-world-seeds.com/) - UK source that ships here
+- [Potato Garden](https://www.potatogarden.com/)
 - [Prairie Moon](https://www.prairiemoon.com/) - natives
 - [Resilient Seeds](http://www.resilient-seeds.com) - limited selection, emphasis on storage crops, dry legumes, and grains
 - [Richters](https://www.richters.com/) - Egyptian walking onion, lots of basils, lovage, jujube, hops, goji, LARGE selection
@@ -34,14 +36,18 @@ Sources for specialty seeds, especialy perennial vegetable seeds and plants, man
 - [Seeds from Italy](https://www.growitalian.com/)
 - [Select Seeds](https://www.selectseeds.com/)
 - [Southern Exposure](http://www.southernexposure.com/)
+- [Sow True Seeds](https://sowtrueseed.com/) - seed potato onions
 - [Sundial Seeds](https://www.sundialseed.com/) - purple tree collards
 - [Terroir](https://underwoodgardens.com/) - agretti, edible crysanthemum, salad burnet, sculpit, rare herbs
 - [Tripple Brook](https://tripplebrookfarm.com/tbf/man/general/home.shtml) - perennial onions, ramps, fuki, ostrich fern, mayapple
 - [Turtle Tree](https://www.turtletreeseed.org/) - biodynamic seeds
 - [Nature & Nurture](https://natureandnurtureseeds.com/)
+- [Hamilton Native Outpost](https://www.hamiltonnativeoutpost.com/) - wildflowers and natives    
+- [Useful Seeds](http://www.usefulseeds.com/) - perennial and other crazy veg from Australia    
 
 ## Lists of other sources
 
+- [Eric Toensmeier's list of perennial vegetable sources](https://www.chelseagreen.com/2008/rare-and-hard-to-find-perennial-seed-sources/)
 - [Ozarks sources](https://showmeoz.wordpress.com/heirloom-seed-sources/) - many highly specialized small places
 - [Midwest sources](http://www.greatlakespermaculture.org/?page_id=11)
 - [My mom's massive list](http://vomitingchicken.com/another-happy-list-genes-seed-catalog-list/)
